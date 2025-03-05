@@ -2,7 +2,7 @@
 
 ## Cat Casino промокод ⚡️E100 - удобный способ получить при регистрации сегодня 100 FS в слоты the Dog House, Cleocatra, Fruit Party, а также 100% к первому депозиту! Чтобы активировать бонусы после регистрации с промокодом в Кэт, нужно внести депозит от 500 рублей!
 
-##[CAT CASINO ЗЕРКАЛО](https://linkcasino.ru/cat_e100)
+## [CAT CASINO ЗЕРКАЛО](https://linkcasino.ru/cat_e100)
 
 
 ![image](https://github.com/user-attachments/assets/68392bbc-5a68-48ee-a266-402b6f973aa2)
